@@ -7,4 +7,4 @@ Author : Digvijay Singh
 
 1. download the data
 2. open galaxy  (usegalaxy.eu)
-3. <img![WIN_20260102_18_51_16_Pro](https://github.com/user-attachments/assets/46dde6a8-b4bb-4d28-945a-738f33cfcd57)
+3. <img![spider man (1)](https://github.com/user-attachments/assets/029ec5cd-92fc-45fd-bfbe-4ce689baec94)
